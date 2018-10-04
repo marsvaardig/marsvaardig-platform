@@ -12,7 +12,7 @@ Door het grootste deel van het repetitieve werk voor ons te doen, vermindert het
 - [Dienstervelening websites](https://www.marsvaardig.eu/voor-wie/dienstverlening)
 - [Vastgoed websites](https://www.marsvaardig.eu/voor-wie/bouw-en-vastgoed-website-laten-maken)
 - [Architect websites](https://www.marsvaardig.eu/voor-wie/architect-website-laten-maken)
-- [Advocaat webstes](https://www.marsvaardig.eu/voor-wie/advocaat-website-laten-maken)
+- [Advocaat websites](https://www.marsvaardig.eu/voor-wie/advocaat-website-laten-maken)
 
 ## Partner worden
 
