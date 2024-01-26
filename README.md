@@ -7,12 +7,14 @@ Ons platform combineert op een unieke wijze het ontwerp, techniek en werkwijze b
 
 Door het grootste deel van het repetitieve werk voor ons te doen, vermindert het platform onze tijd om allerlei soorten websites te ontwikkelen:
 
-- [Restaurant websites](https://www.marsvaardig.eu/voor-wie/restaurant-website-laten-maken)
-- [Winkel websites](https://www.marsvaardig.eu/voor-wie/website-voor-winkel-laten-maken)
-- [Dienstervelening websites](https://www.marsvaardig.eu/voor-wie/dienstverlening)
-- [Vastgoed websites](https://www.marsvaardig.eu/voor-wie/bouw-en-vastgoed-website-laten-maken)
-- [Architect websites](https://www.marsvaardig.eu/voor-wie/architect-website-laten-maken)
-- [Advocaat websites](https://www.marsvaardig.eu/voor-wie/advocaat-website-laten-maken)
+- [Website laten maken voor restaurant](https://www.marsvaardig.eu/voor-wie/restaurant-website-laten-maken)
+- [Website laten maken voor winkel](https://www.marsvaardig.eu/voor-wie/winkel-website-laten-maken)
+- [Website laten maken voor dienstverlener](https://www.marsvaardig.eu/voor-wie/dienstverlener-website-laten-maken)
+- [Website laten maken voor school](https://www.marsvaardig.eu/voor-wie/school-website-laten-maken)
+- [Website laten maken voor architect](https://www.marsvaardig.eu/voor-wie/architect-website-laten-maken)
+- [Website laten maken voor advocaat](https://www.marsvaardig.eu/voor-wie/advocaat-website-laten-maken)
+
+Wil je ook een [website laten maken](https://www.marsvaardig.eu/website-laten-maken)? Wij werken vanuit [Hilversum (Nederland)](https://www.marsvaardig.eu/website-laten-maken-in-hilversum) & [Diest (België)](https://www.marsvaardig.eu/website-laten-maken-in-diest)
 
 ## Partner worden
 
