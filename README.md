@@ -15,7 +15,3 @@ Door het grootste deel van het repetitieve werk voor ons te doen, vermindert het
 - [Website laten maken voor advocaat](https://www.marsvaardig.eu/voor-wie/advocaat-website-laten-maken)
 
 Wil je ook een [website laten maken](https://www.marsvaardig.eu/website-laten-maken)? Wij werken vanuit [Hilversum (Nederland)](https://www.marsvaardig.eu/website-laten-maken-in-hilversum) & [Diest (België)](https://www.marsvaardig.eu/website-laten-maken-in-diest)
-
-## Partner worden
-
-Je kan ons platform rechtstreeks aanbieden aan je eigen klanten, onder je eigen naam. [Word vandaag nog Marsvaardig partner](https://www.marsvaardig.eu/breng-klanten-aan).
