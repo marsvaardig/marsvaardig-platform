@@ -1,7 +1,7 @@
 # Marsvaardig Platform
 
 
-## Uniek open source website platform voor het moderne web.
+## Uniek platform voor moderne websites
 
 Ons platform combineert op een unieke wijze het ontwerp, techniek en werkwijze bij het maken van websites.
 
